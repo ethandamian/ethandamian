@@ -11,7 +11,7 @@
 
 - 📫 How to reach me **ethandamian@ciencias.unam.mx**
 
-- 📄 Know about my experiences [Resume](Resume)
+- 📄 Know about my experiences [https://drive.google.com/file/d/1zaJKtOTtm4mJEZ9zWRrf6oxbksunt-7N/view?usp=sharing](Resume)
 
 - ⚡ Fun fact **I am a fast learner**
 
