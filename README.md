@@ -11,7 +11,7 @@
 
 - 📫 How to reach me **ethand.san@gmail.com**
 
-- 📄 Know about my experiences [Resume](Resume)
+- 📄 Know about my experiences [Resume](https://drive.google.com/file/d/17wBgNcIQ8hnqjHuAk-W70ozGwXPXA9je/view?usp=sharing)
 
 - ⚡ Fun fact **I am a fast learner**
 
